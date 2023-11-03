@@ -1,0 +1,1 @@
+# Teknoloji-ve-Yaz-l-mla-lgili-10-Podcast-nerisi-2023-
